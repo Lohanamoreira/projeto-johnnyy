@@ -1,2 +1,0 @@
-# projeto-johnnyy
-portfólio
